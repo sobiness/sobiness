@@ -1,4 +1,4 @@
-### Hi there 👋, Hey! I am Sobika
+### Hi there 👋, I am Sobika
 #### ML Engineer Intern | MEAN Stack Developer
 
 
